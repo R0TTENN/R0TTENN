@@ -1,4 +1,4 @@
-## Hi there 👋
+![8a6e727752ff7ba203d0c5944a6928f6](https://github.com/user-attachments/assets/7c61923b-359d-4dcb-92c3-7de2e8fd852f)
 
 <!--
 **R0TTENN/R0TTENN** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
