@@ -1,2 +1,2 @@
-⠀⠀⠀⠀⠀⠀⠀![Image](https://github.com/user-attachments/assets/52ace960-346b-4981-8996-3709a8c16b28)
+⠀⠀⠀⠀⠀⠀⠀<img width="435" height="267" alt="Image" src="https://github.com/user-attachments/assets/d7a99c53-9933-4adf-a603-e7b58254266c" />
 ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀‎ ‎  ‎   ‎   ‎   ‎  ‎  ‎  ‎  ‎ ⠀ ‎  ‎   ‎    ‎  ‎  ‎  ‎  ‎ ⠀  
