@@ -1,2 +1,2 @@
 ![](https://komarev.com/ghpvc/?username=gambling-addict&style=plastic&color=F8EEEC&label=🐰)
-<img width="735" height="1040" alt="Image" src="https://github.com/user-attachments/assets/2e03f96d-1e9d-4669-830c-a565d704d79b" />
+<img width="735" height="306" alt="Image" src="https://github.com/user-attachments/assets/abdaa1a6-a2e1-4884-befb-b96c5dfa5c0e" />
