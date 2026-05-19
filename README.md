@@ -1,3 +1,3 @@
-<img width="1280" height="256" alt="Image" src="https://github.com/user-attachments/assets/82c15511-e226-43c7-8833-2d5c49e446e1" />
+<img width="545" height="339" alt="Image" src="https://github.com/user-attachments/assets/8ccd1c5c-e14a-46e3-b45a-dd845aa9201a" />
 
-![](https://komarev.com/ghpvc/?username=chatman-media&style=plastic&color=563A36&label=🐈‍⬛)
+![](https://komarev.com/ghpvc/?username=chatman-media&style=plastic&color=B62F2B&label=🍎)
