@@ -1,2 +1,2 @@
 ![](https://komarev.com/ghpvc/?username=chatman-media&style=plastic&color=FDD100&label=rabbids)
-<img width="540" height="405" alt="Image" src="https://github.com/user-attachments/assets/1871d11b-f63f-45b4-a1d5-3be64232636a" />
+<img width="500" height="250" alt="Image" src="https://github.com/user-attachments/assets/426e20ff-30e5-4444-97b6-8d193646c39c" />
